@@ -6,4 +6,4 @@ Oh, feet
 Flippin' your fins, you don't get too far
 Legs are required for jumping, dancing
 Strolling along down the, what's that word again?
-Street
+Streeeet ♫
